@@ -1,1 +1,1 @@
-# rsschool-cv
+https://trubkinv.github.io/rsschool-cv/
